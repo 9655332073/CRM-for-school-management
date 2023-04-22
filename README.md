@@ -8,4 +8,4 @@ team Member 3-https://trailblazer.me/id/srilm7
 project report template pdf
 https://drive.google.com/file/d/1EtJ0YukQvSWu57pXVJ_O32G3mR7bN0ix/view?usp=drivesdk
 project video demo
-https://drive.google.com/file/d/1EjeSFRpTTDcA6TXjPHuTMDcg3NY6Jcy_/view?usp=drivesdk
+https://drive.google.com/file/d/1FKKsHXv7KZQ80KDYHr-RWB_yCBmw3Yvq/view?usp=drivesdk
